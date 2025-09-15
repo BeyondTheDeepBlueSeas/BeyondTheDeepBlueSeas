@@ -4,7 +4,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𐔌***infj*** ' *6w5* // 2w1‧₊˚ 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀***BYI***⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀I ***struggle*** with <ins>communication</ins> and would *r*eally ⠀⠀⠀⠀appreciate if you let me interact *first* ⸝⸝ˎˊ˗
+⠀⠀⠀⠀I ***struggle*** with <ins>communication</ins> and would *r*eally ⠀⠀⠀⠀⠀⠀appreciate if you let me interact *first* ⸝⸝ˎˊ˗
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀***DNI***⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀**Pedophiles** , Homophobia , Transphobia , ⠀⠀⠀⠀<ins>Racists</ins> , **h1tler** Jokes , Koreaboo etc. . . 
