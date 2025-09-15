@@ -1,5 +1,7 @@
 <img width="1868" height="1464" alt="1000044049" src="https://github.com/user-attachments/assets/1c28aa38-086d-41aa-8d67-cfc29c501306" />
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**K**osame ︵ any <ins>prns</ins> .ᐟ
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𐔌***infj*** ' *6w5* // 2w1‧₊˚ 
 <!--
 **BeyondTheDeepBlueSeas/BeyondTheDeepBlueSeas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
