@@ -7,7 +7,7 @@
 ⠀⠀⠀⠀I ***struggle*** with <ins>communication</ins> and would *r*eally ⠀⠀⠀⠀⠀⠀appreciate if you let me interact *first* ⸝⸝ˎˊ˗
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀***DNI***⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀**Pedophiles** , Homophobia , Transphobia , <ins>Racists</ins> , **h1tler** Jokes , Koreaboo etc. . . 
+⠀⠀⠀⠀**Pedophiles** , Homophobia , Transphobia , <ins>Racists</ins> , ⠀⠀⠀⠀⠀⠀**h1tler** Jokes , Koreaboo etc. . . 
 <!--
 **BeyondTheDeepBlueSeas/BeyondTheDeepBlueSeas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
