@@ -1,6 +1,6 @@
 not computer friendly view
 
-<img width="1868" height="1464" alt="1000044049" src="https://github.com/user-attachments/assets/1c28aa38-086d-41aa-8d67-cfc29c501306" />
+![1000044481](https://github.com/user-attachments/assets/eaaf0785-b73f-45d6-b576-233c08ac5101)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**K**osame ︵ any <ins>prns</ins> .ᐟ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𐔌***infj*** ' *6w5* // 2w1‧₊˚ 
